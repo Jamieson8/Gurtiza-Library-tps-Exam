@@ -1,1 +1,0 @@
-# Gurtiza-Library-tps-Exam
